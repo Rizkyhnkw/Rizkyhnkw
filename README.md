@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rizkyhnkw
 - 👀 I’m interested in blockchain
-- 🌱 I’m currently learning python
+- 🌱 I’m currently learning javascript
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: suf/fer
