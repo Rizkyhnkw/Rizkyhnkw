@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Rizkyhnkw
-- 👀 I’m interested in blockchain
-- 🌱 I’m currently learning javascript
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in mba" gothic
+- 🌱 I’m currently learning metaphysic
+- 💞️ I’m looking to collaborate on mabar roblox
+- 📫 How to reach me ... rumah
 - 😄 Pronouns: suf/fer
 - ⚡ Fun fact: lu lol
 
