@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning metaphysic
 - 💞️ I’m looking to collaborate on mabar roblox
 - 📫 How to reach me ... rumah
-- 😄 Pronouns: suf/fer
+- 😄 Pronouns: WitchOf/Miracles
 - ⚡ Fun fact: lu lol
 
 <!---
